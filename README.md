@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @madina006
 - 👀 I’m interested in make a website
 - 🌱 I’m currently learning php language
-- 💞️ I’m looking to collaborate on I don't want anything
+- 💞️ I’m looking to collaborate on apple 
 - 📫 How to reach me with whatsapp
 - 😄 Pronouns:
 - ⚡ Fun fact: У вас мурашки бегут по коже, когда вы боитесь казаться крупнее.

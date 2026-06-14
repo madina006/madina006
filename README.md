@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on apple 
 - 📫 How to reach me with whatsapp
 - 😄 Pronouns:
-- ⚡ Fun fact: У вас мурашки бегут по коже, когда вы боитесь казаться крупнее.
+- ⚡ Fun fact: money money
 
 <!---
 madina006/madina006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
